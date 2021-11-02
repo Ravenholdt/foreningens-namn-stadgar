@@ -1,12 +1,12 @@
 # HDs verksamhetsidé
 Idén med föreningen är att erbjuda alternativ till alkoholcentrerade arr genom
-spelkvällar medsällskapsspel och LAN. På samma sätt vill vi eftersträva att ha
+spelkvällar med sällskapsspel och LAN. På samma sätt vill vi eftersträva att ha
 vårat rum öppet, alkoholfritt och lugnt, som en oas i både vardagsstressen och
 under möjliga festkvällar.
 
 För att rummet ska fungera som tänkt önskas avstånd från högljudda fester och
-utrymme nog för attbesökare ska kunna sitta ned en stund. Optimalt finns såpass
-mycket plats att man kan sätta uppnågra speldatorer för medlemmars bruk och
+utrymme nog för att besökare ska kunna sitta ned en stund. Optimalt finns såpass
+mycket plats att man kan sätta upp några speldatorer för medlemmars bruk och
 passande bord i närheten så att medlemmar smidigt kan spela brädspel.
 
 Rent ekonomisk tänks småskalig försäljning till medlemmar i rummet och
